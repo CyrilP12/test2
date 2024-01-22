@@ -28,4 +28,4 @@
 
 ### Déterminé à utiliser ses pouvoirs de manière responsable, Max s'est lancé dans un voyage à la découverte de lui-même, cherchant à comprendre la véritable nature du pouvoir et l'importance de l'empathie et de la compassion.
 
-
+## The End.
